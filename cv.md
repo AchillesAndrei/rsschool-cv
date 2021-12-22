@@ -1,2 +1,2 @@
 # Andrei Rubtsou
-## Contacts
+## Contacts: *tel: +375 29 3653250; e-mail: infosolmir@yandex.ru*
